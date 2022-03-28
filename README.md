@@ -1,0 +1,1 @@
+# Desafios---GFT-QA-Encaixa-ou-n-o-encaixa
